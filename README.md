@@ -5,9 +5,9 @@
 
 <!-- This is a comment --> <img align="right" alt="coding" width="400"src"Enter image">
 
-- 📫 How to reach me **desaiadiofficial@gmail.com**
+- 📫 Contact -  **desaiadiofficial@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1vgXCbqqoVUe0-mt0jnOFjZT3QJx5dxfu/view?usp=drive_link](https://drive.google.com/file/d/1vgXCbqqoVUe0-mt0jnOFjZT3QJx5dxfu/view?usp=drive_link)
+- 📄 Resume - [https://drive.google.com/file/d/1vgXCbqqoVUe0-mt0jnOFjZT3QJx5dxfu/view?usp=drive_link](https://drive.google.com/file/d/1vgXCbqqoVUe0-mt0jnOFjZT3QJx5dxfu/view?usp=drive_link)
 
 - ⚡ Fun fact **I find greater joy in acquiring new knowledge than seeking out novel forms of entertainment.**
 
