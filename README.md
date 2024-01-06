@@ -9,7 +9,7 @@
 
 - 📄 Resume - [https://drive.google.com/file/d/1vgXCbqqoVUe0-mt0jnOFjZT3QJx5dxfu/view?usp=drive_link](https://drive.google.com/file/d/1vgXCbqqoVUe0-mt0jnOFjZT3QJx5dxfu/view?usp=drive_link)
 
-- ⚡ Fun fact - <i>** Obstackle Motivates and Knowlege Entertains **
+- ⚡ Fun fact - <i>**Obstackle Motivates and Knowlege Entertains**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
