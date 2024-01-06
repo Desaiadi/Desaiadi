@@ -9,7 +9,7 @@
 
 - 📄 Resume - [https://drive.google.com/file/d/1vgXCbqqoVUe0-mt0jnOFjZT3QJx5dxfu/view?usp=drive_link](https://drive.google.com/file/d/1vgXCbqqoVUe0-mt0jnOFjZT3QJx5dxfu/view?usp=drive_link)
 
-- ⚡ Fun fact - <i>**I find greater joy in acquiring new knowledge than seeking out novel forms of entertainment.**
+- ⚡ Fun fact - <i>** Obstackle Motivates and Knowlege Entertains **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
