@@ -1,7 +1,7 @@
 ![logo](https://github.com/Desaiadi/Desaiadi/blob/main/linkedin-Github-Background.png)
 
 <h1 align="center">Hi 👋, I'm Aditya Desai</h1>
-<h3 align="center">Data Science Enthusiast</h3>
+<h3 align="center">Data Science Student</h3>
 
 <!-- This is a comment --> <img align="right" alt="coding" width="400"src"Enter image">
 
