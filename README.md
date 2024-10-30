@@ -7,7 +7,7 @@
 
 - 📫 Contact -  **desaiadiofficial@gmail.com**
 
-- 📄 Resume - [https://drive.google.com/file/d/1vgXCbqqoVUe0-mt0jnOFjZT3QJx5dxfu/view?usp=drive_link](https://drive.google.com/file/d/1vgXCbqqoVUe0-mt0jnOFjZT3QJx5dxfu/view?usp=drive_link)
+- 📄 Resume - [https://drive.google.com/file/d/1Q-bQdRAMUu9oaFb0KvpE6VbVW3-0GJXG/view?usp=drive_link](https://drive.google.com/file/d/1Q-bQdRAMUu9oaFb0KvpE6VbVW3-0GJXG/view?usp=drive_link)
 
 - ⚡ Fun fact - <i>**Obstackle Motivates and Knowlege Entertains**
 
